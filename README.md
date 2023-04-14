@@ -6,9 +6,9 @@
 ***
 演示一下流程流程
 #### 1:此处购买密码:https://partme.com/haysn , 完成后点击这里:https://partme.com/posts/536580511461000
-![](https://pic.imgdb.cn/item/643611fd0d2dde57779a1d03.webp)
+![](https://imgtg.com/image/86rDU)
 #### 2:复制完成密码后点击:http://www.haysn.tk , 这是游戏库，安卓设备右上角搜 [安卓或者apk] 
-![](https://pic.imgdb.cn/item/643611210d2dde5777994c39.webp)
+![](https://imgtg.com/image/86A6Y)
 
 ***
 #### 解压密码: Romekic / romekic / 0000 / 文章标有的解压密码
