@@ -4,6 +4,7 @@
 演示一下流程流程
 #### 1:此处购买密码:<https://partme.com/haysn>,完成后点击这里:<https://partme.com/posts/536580511461000>
 ![](https://github.com/romekic/Linek/blob/main/1.webp)
+![](https://imgtg.com/image/86rDU)
 #### 2:复制完成密码后点击:<http://www.haysn.tk> , 这是游戏库，安卓设备右上角搜 [安卓或者apk] 
 ![](https://github.com/romekic/Linek/blob/main/2.webp)
 ***
