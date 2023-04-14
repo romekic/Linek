@@ -3,9 +3,9 @@
 ***
 演示一下流程流程
 #### 1:此处购买密码:<https://partme.com/haysn>,完成后点击这里:<https://partme.com/posts/536580511461000>
-![](https://imgtg.com/image/86rDU)
+![](https://github.com/romekic/Linek/blob/main/1.webp)
 #### 2:复制完成密码后点击:<http://www.haysn.tk> , 这是游戏库，安卓设备右上角搜 [安卓或者apk] 
-![](https://imgtg.com/image/86A6Y)
+![](https://github.com/romekic/Linek/blob/main/2.webp)
 ***
 #### 解压密码: Romekic / romekic / 0000 / 文章标有的解压密码
 #### 如果游戏下载慢,使用多线程,IDM,NDM.[安卓端使用via浏览器就行]
