@@ -3,10 +3,10 @@
 ![](https://i.imgtg.com/2023/04/16/XHpy6.webp)
 #### 购买流程
 1:此处购买密码:<https://partme.com/haysn>,完成后点击这里:<https://partme.com/posts/536580511461000>
-![](https://cdn.staticaly.com/gh/romekic/tc@master/ZY/1.webp)
+![](https://imgtg.com/image/86rDU)
 2:复制完成密码后点击:<http://www.haysn.tk> <br>
 ##### 注意:安卓设备只需要右上角搜 [安卓或者apk] , 模拟器用法自行上网查找
-![](https://cdn.staticaly.com/gh/romekic/tc@master/ZY/2.webp)
+![](https://imgtg.com/image/86A6Y)
 ***
 #### 解压密码: Romekic / romekic / 0000
 #### 如果游戏下载慢,使用多线程,IDM,NDM.[安卓端使用via浏览器就行]
