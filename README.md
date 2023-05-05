@@ -3,7 +3,7 @@
 ![](https://i.imgtg.com/2023/04/16/XHpy6.webp)
 ### 购买流程
 <https://afdian.net/a/Romekic> ,买5元密码, 会在私信回复你密码.<br>
-### 跟下图一样，安卓设备搜安卓就可以
+### 跟下图一样，安卓设备搜安卓和apk就可以
 ![](https://i.imgtg.com/2023/04/14/86A6Y.webp)
 #### 简介站1:<https://www.mochoi.top>  游戏库:<https://www.haysn.tk>
 #### 解压密码: [ Romekic ][ romekic ][ 0000 ]
