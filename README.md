@@ -5,6 +5,7 @@
 <https://afdian.net/a/Romekic> ,买5元密码, 会在私信回复你密码.<br>
 ### 跟下图一样，安卓设备搜安卓和apk就可以
 ![](https://i.imgtg.com/2023/04/14/86A6Y.webp)
+### 可以在各分区内搜索，这样会搜索只会搜分区内内容。
 #### 简介站1:<https://www.mochoi.top>  游戏库:<https://www.haysn.tk>
 #### 解压密码: [ Romekic ][ romekic ][ 0000 ]
 #### 如果游戏下载慢,使用多线程,IDM,NDM.[安卓端使用via浏览器就行]
