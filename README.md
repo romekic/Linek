@@ -13,3 +13,4 @@
 #### 推荐机场:[Efcloud](https://www.efcloud.net/#/register?code=WnbfsJAm)  ,  [一元机场](https://xn--4gq62f52gdss.com/#/register?code=KZXciMqn)
 #### [安卓模拟器,解压视频,解压工具](http://www.haysn.tk/Rubbish) , PC端解压工具[7zip](https://experiments-alicdn.sparanoid.net/7z/7z2201-x64.exe) , 安卓端解压工具[Zarachiver](http://www.haysn.tk/Rubbish/APK)
 #### 解压密码: [ Romekic ][ romekic ][ 0000 ] 不对确认你下的是不是PC，不是去QQ问我。
+#### AVG一般是[ muko ]  其他[ 半夏 ]
