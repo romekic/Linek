@@ -7,6 +7,7 @@
 ### apk下载删掉bin安装,安卓下载删掉bin解压安装.
 ### 还没懂我说的什么看视频<https://x.mochoi.top/教程/介绍.mp4>
 ***
+#### <https://www.mochoi.top>游戏简介站
 #### 安卓一切问题更换浏览器解决[via浏览器](https://viayoo.com/zh-cn)
 #### partme订阅未过期在patme发布获取，过期去盒岛买
 #### 下载慢安卓用via浏览器，PC网上搜多线程.
