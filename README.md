@@ -1,7 +1,7 @@
 ### partme订阅未过期在patme发布获取密码，过期去盒岛买
 ### 1:点此链接去盒岛买 - 点击(点击购买) <http://www.hedaoapp.com/yunapp/idolTrends?wid=5311&pid=8109>
-### 2:买完返回链接<http://www.hedaoapp.com/yunapp/idolTrends?wid=5311&pid=8109>，复制 [密码如下] 的下方密码
-### 3:去游戏库:<http://x.mochoi.top>  (Game 目录) 输入刚刚复制的密码。(进不去游戏库切换流量,下载游戏切换wifi)
+### 2:买完,不用管什么凭证，点击链接<http://www.hedaoapp.com/yunPC/coreShot?wid=5311>，下拉，在动态复制 [点击购买] 上方的数字+密码
+### 3:去游戏库:<http://x.mochoi.top>  (Game 目录) 输入刚刚复制的密码,然后随便下载，随便玩。
 ### 4:安卓设备搜安卓和apk就可以,也可以在目录搜索，推荐在分区目录找游戏,游戏库可能还没有更新索引，可以@我.
 ### 还没懂我说的什么看视频<https://x.mochoi.top/教程>
 ***
