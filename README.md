@@ -1,6 +1,8 @@
 ### 1:点此链接去盒岛买 - 点击购买 <http://www.hedaoapp.com/yunapp/idolTrends?wid=5311&pid=8109>
+![](https://i.imgtg.com/2023/06/15/OB9KtC.jpg)
 ### 2:买完,不用管什么凭证，点击链接<http://www.hedaoapp.com/yunPC/coreShot?wid=5311>，下拉到底，复制 [点击购买] 上方的密码
 ### 3:去游戏库:<http://x.mochoi.top>  进入Game目录 输入刚刚复制的密码,然后随便下载，随便玩。
+![](https://i.imgtg.com/2023/06/15/OB9Z2L.jpg)
 ## 4:安卓设备搜安卓和apk就可以,也可以在目录搜索，推荐在分区目录找游戏,库有可能还没更新索引，可以@我.
 ### 还没懂我说的什么看视频<https://x.mochoi.top/教程>
 ***
